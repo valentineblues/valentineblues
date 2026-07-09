@@ -1,4 +1,5 @@
-## Hi there 👋
+
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/ac6eae3a-c661-48bb-a22b-d84c75ef0e18" />
 
 <!--
 **valentineblues/valentineblues** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
