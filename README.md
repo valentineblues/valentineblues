@@ -1,6 +1,7 @@
 <img width="1199" height="400" alt="image" src="https://github.com/user-attachments/assets/4260ef9f-8500-4988-831b-ded5d0964215" />
 
 ### <p align=center>"I THINK ABOUT MY LIFE WITHOUT YOU AND I START TO CRY."</p>
+<img width="1000" height="10" alt="image" src="https://github.com/user-attachments/assets/a6dbc6d6-77f8-4388-882c-69a411a64b20" />
 
 <!--
 **valentineblues/valentineblues** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
