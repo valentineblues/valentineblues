@@ -1,4 +1,4 @@
-*"I THINK ABOUT MY LIFE WITHOUT YOU AND I START TO CRY."*
+*<p align=center>"I THINK ABOUT MY LIFE WITHOUT YOU AND I START TO CRY."</p>*
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/ac6eae3a-c661-48bb-a22b-d84c75ef0e18" />
 
 <!--
