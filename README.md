@@ -1,4 +1,5 @@
-<img width="1199" height="400" alt="image" src="https://github.com/user-attachments/assets/05f1e41c-b592-4557-8e1c-bbd322685aa1" />
+<img width="1199" height="400" alt="image" src="https://github.com/user-attachments/assets/4260ef9f-8500-4988-831b-ded5d0964215" />
+
 ### <p align=center>"I THINK ABOUT MY LIFE WITHOUT YOU AND I START TO CRY."</p>
 
 <!--
