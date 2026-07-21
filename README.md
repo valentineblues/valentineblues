@@ -6,6 +6,6 @@
 #### ***<p align=center> "SILVER" </p>***
 #### ***<p align=center> "She / Her" </p>***
 
-*<p align=center> Check out my stawpage!! </p>*
+*<p align=center> Check out my stawpage/atabook!! </p>*
 
 <img width="1010" height="5" alt="image" src="https://github.com/user-attachments/assets/f0910fb4-bceb-481d-8caa-2a4f29acd10f" />
