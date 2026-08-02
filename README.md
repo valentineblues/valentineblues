@@ -6,5 +6,6 @@
 #### ***<p align=center> "SILVER" </p>***
 #### ***<p align=center> "She / Her" </p>***
 
-<p align=center> !! [Strawpage](https://valentineblues.straw.page)  [Atabook](https://valentineblues.atabook.org) !! </p>
+*<p align=center> !! [Strawpage](https://valentineblues.straw.page)  [Atabook](https://valentineblues.atabook.org) !! </p>
+
 <img width="1010" height="5" alt="image" src="https://github.com/user-attachments/assets/f0910fb4-bceb-481d-8caa-2a4f29acd10f" />
