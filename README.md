@@ -4,7 +4,7 @@
 ### <ins><p align=center>"I THINK ABOUT MY LIFE WITHOUT YOU AND I START TO CRY."</p></ins>
 
 #### ***<p align=center> "SILVER" </p>***
-#### ***<p align=center> "She / Her" </p>***
+#### ***<p align=center> "She / Her" </p>**
 
 *<p align=center> !! [Strawpage](https://valentineblues.straw.page)  [Atabook](https://valentineblues.atabook.org) !! </p>
 
