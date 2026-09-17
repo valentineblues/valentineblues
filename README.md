@@ -1,6 +1,7 @@
 <img width="1010" height="5" alt="image" src="https://github.com/user-attachments/assets/454af8e6-9603-4b8d-ad98-14368ba60f12" />
 
-<img width="500" height="226" alt="image" src="https://github.com/user-attachments/assets/084b2d47-1654-4cf8-af95-40526236899f" />
+<img width="735" height="432" alt="image" src="https://github.com/user-attachments/assets/052967a6-9e61-413a-8f66-8332ffc25a89" />
+
 
 ### <ins><p align=center>"I THINK ABOUT MY LIFE WITHOUT YOU AND I START TO CRY."</p></ins>
 
