@@ -1,5 +1,9 @@
-![Visitors](https://api.visitorbadge.io/api/visitors?path=valentineblues&labelColor=%23ff631a&countColor=%230f0500&labelStyle=upper)
 
-<img width="436" height="361" alt="image" src="https://github.com/user-attachments/assets/d9a783b2-c190-44ce-89e9-b1c1b66713b0" />
+
+
+<p align="center">
+<img width="535" height="356" alt="image" src="https://github.com/user-attachments/assets/2313f8b7-e6f4-48ed-bc50-287dff3e8875" />
+</p>
+
 
 WORK IN PROGRESS
